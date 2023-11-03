@@ -1,1 +1,1 @@
-![engineer](https://media.tenor.com/ZVs4foJUFtUAAAAd/team-fortress2-engineer.gif)
+![engineer](https://i.redd.it/5umdmh0zezz61.png)
